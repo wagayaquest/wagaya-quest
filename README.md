@@ -1,1 +1,0 @@
-# wagaya-quest
